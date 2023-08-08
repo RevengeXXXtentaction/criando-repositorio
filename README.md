@@ -1,1 +1,2 @@
-![octocat-1691496555995](https://github.com/RevengeXXXtentaction/criando-repositorio/assets/106243959/6acee2a1-7dd0-466b-aa06-ac9ebc66a1d6)
+![texto-alternativo](![octocat-1691496838977](https://github.com/RevengeXXXtentaction/criando-repositorio/assets/106243959/5eda3924-8233-4c62-8e36-8b74a7e5f62d)
+)
